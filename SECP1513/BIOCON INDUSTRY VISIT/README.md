@@ -1,4 +1,5 @@
 💉 Seeing Science in Action: Our Visit to Biocon 
+
 Date : 23 Dec 2025
 
 A few days before Christmas, I had the incredible chance to visit Biocon Sdn. Bhd. with Assoc. Prof. Dr. Azurah binti Abu Samah. Walking into the Drug Product department where they produce insulin was a real "wow" moment. Our instructor, Mr. Jaya, walked us through the entire journey—from the initial yeast fermentation all the way to the final packaging.
